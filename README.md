@@ -1,1 +1,1 @@
-<img src="https://upload.wikimedia.org/wikipedia/commons/8/8a/LGBT_Rainbow_Flag.png" width="20%">
+<img src="https://upload.wikimedia.org/wikipedia/commons/thumb/a/a2/Pansexuality_Pride_Flag.svg/2560px-Pansexuality_Pride_Flag.svg.png" width="20%">
